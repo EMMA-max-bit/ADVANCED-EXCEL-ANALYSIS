@@ -10,3 +10,39 @@
 #### 3.  The top product contributing to the highest total loss in 2015 was the "Polycom ViewStation™ ISDN Videoconferencing Unit", resulting in a loss of over $27,700 across just two transactions.
 #### 4. • Specific printers (Okidata Pacemark 4410N, Epson DFX-8500, Lexmark 4227 Plus)
 #### 5.  Furniture items (Riverside Palais Royal Lawyers Bookcase, Global High-Back Leather Tilter, Bush Advantage Conference Table,    Laminate Occasional Tables), and an Eldon ClusterMat Chair Mat.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
